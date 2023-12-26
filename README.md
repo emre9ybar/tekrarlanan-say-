@@ -1,0 +1,1 @@
+# tekrarlanan-say-
